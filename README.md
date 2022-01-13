@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ramnad-motorq
+- 👀 I’m currently working at @motorq
